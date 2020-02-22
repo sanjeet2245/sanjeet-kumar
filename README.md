@@ -1,1 +1,1 @@
-# sanjeet-kuma
+# sanjeet-kumar
